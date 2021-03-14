@@ -1,6 +1,28 @@
 # rktrkt
 
 
-## Realizing value
+## 2-28-21 Rkt 4 Hour chart
+
+Realizing Value
 
 ![alt text](https://github.com/MartianXIII/rktrkt/blob/main/rkt1.png?raw=true)
+
+
+## 3-2-21 4 hour chart
+
+Lifetime swing High to High was 17.51 - 34.42
+
+![alt text](https://github.com/MartianXIII/rktrkt/blob/main/rkt2.png?raw=true)
+
+
+## 3-2-21 4 hour chart
+
+Break out happened and notice interaction with fib levels
+
+![alt text](https://github.com/MartianXIII/rktrkt/blob/main/rkt3.png?raw=true)
+
+## 3-14-21 2 hour chart
+
+![alt text](https://github.com/MartianXIII/rktrkt/blob/main/rkt4.png?raw=true)
+
+Consolidating at previous resistance
