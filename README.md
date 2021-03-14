@@ -3,4 +3,4 @@
 
 ## Realizing value
 
-![alt text](https://github.com/MartianXIII/rktrkt/blob/master/rkt1.png?raw=true)
+![alt text](https://github.com/MartianXIII/rktrkt/blob/main/rkt1.png?raw=true)
