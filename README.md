@@ -26,3 +26,12 @@ Break out happened and notice interaction with fib levels
 ![alt text](https://github.com/MartianXIII/rktrkt/blob/main/rkt4.png?raw=true)
 
 Consolidating at previous resistance
+
+## 3-24-21 Daily chart
+
+
+New Fib on 17.50 all-time Low --- 43.00$ all-time High
+
+Price has remained @ 786 for Days showing strong support / accumulation 23.00$ for now.
+
+Dividends date was essentially a pump and dump of 5% and close right back at open
