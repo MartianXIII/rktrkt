@@ -29,6 +29,7 @@ Consolidating at previous resistance
 
 ## 3-24-21 Daily chart
 
+![alt text](https://github.com/MartianXIII/rktrkt/blob/main/rkt5.png?raw=true)
 
 New Fib on 17.50 all-time Low --- 43.00$ all-time High
 
