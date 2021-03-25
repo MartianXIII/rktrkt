@@ -36,3 +36,11 @@ New Fib on 17.50 all-time Low --- 43.00$ all-time High
 Price has remained @ 786 for Days showing strong support / accumulation 23.00$ for now.
 
 Dividends date was essentially a pump and dump of 5% and close right back at open
+
+## 3-25-21 Daily chart
+
+![alt text](https://github.com/MartianXIII/rktrkt/blob/main/rkt6.png?raw=true)
+
+Testing Previous supply lines, premarket is 21.70$
+
+After that 88.6 is at 20.50 ish$
