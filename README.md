@@ -43,4 +43,4 @@ Dividends date was essentially a pump and dump of 5% and close right back at ope
 
 Testing Previous supply lines, premarket is 21.70$
 
-After that 88.6 is at 20.50 ish$
+After that 88.6 is at 20.50 ish$ which is the former demand zone
